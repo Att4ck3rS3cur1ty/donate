@@ -10,10 +10,10 @@ If you feel you should help this fun guy here, I appreciate it.
 
 ## How to support
 
-    * [Paypal](https://www.paypal.com/donate/?business=S5S4W7CWQN7P4&no_recurring=0&item_name=Thanks%21+%0A-+%40Att4ck3rS3cur1ty%2C+%40_Kr4m3r%2C+J0hn+Kr4m3r&currency_code=USD)
+* [Paypal](https://www.paypal.com/donate/?business=S5S4W7CWQN7P4&no_recurring=0&item_name=Thanks%21+%0A-+%40Att4ck3rS3cur1ty%2C+%40_Kr4m3r%2C+J0hn+Kr4m3r&currency_code=USD)
+
 ## Thanks
 
-I value your support, Much obliged.
-- John Kr4m3r.
+I value your support, John Kr4m3r.
 
 
