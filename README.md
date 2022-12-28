@@ -14,6 +14,7 @@ If you feel you should help this fun guy here, I appreciate it.
 
 ## Thanks
 
-I value your support, John Kr4m3r.
+I value your support, 
+John Kr4m3r.
 
 
